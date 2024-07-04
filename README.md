@@ -1,5 +1,5 @@
 - 👋 Hi, I’m sanita
-- 👀 I’m interested in aimboting and making ai and externals
+- 👀 I’m interested in ai and roblox cheats like Executors
 - 🌱 I’m currently learning externals i aleardy made an ai silenting aim
 - 💞️ I’m looking to collaborate with babyhamasta and neq
 - 📫 How to reach me txn7229 dis
