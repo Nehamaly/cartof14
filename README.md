@@ -1,8 +1,7 @@
 - 👋 Hi, I’m sanita
 - 👀 I’m interested in ai and roblox cheats like Executors
-- 🌱 I’m currently learning externals i aleardy made an ai silenting aim
-- 💞️ I’m looking to collaborate with babyhamasta and neq
-- 📫 How to reach me txn7229 dis
+- 🌱 I’m currently learning Executors and I aleardy learned to code
+- 📫 How to reach me join gg/Electron
 
 <!---
 sanita/sanita is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
